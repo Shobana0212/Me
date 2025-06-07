@@ -1,5 +1,5 @@
 # 👋 Hello World, I'm Shobana!  
-![Shobana's Name Tag](https://res.cloudinary.com/wanderbee/image/upload/v1735249835/Beige_Pink_Simple_Minimalist_Cute_Name_Tag_ihks4j.png)
+![Shobana's Name Tag](https://logos.flamingtext.com/Name-Logos/Shobana-design-china-name.png)
 
 > *Turning coffee into code and dreams into websites* ✨
 
